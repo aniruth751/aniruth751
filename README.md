@@ -2,8 +2,7 @@
 - 👀 I’m interested in Editing,Animation and chip design
 - 🌱 I’m currently doing my bachelors in the dept of ECE in V.S.B Engineering college
 - 💞️ I’m looking to collaborate on managing access to your projects
-- 😄 Pronouns: If you focus on you, you grow
--              If you focus on shit, shit grows.
+- 😄 Pronouns: If you focus on you, you grow - If you focus on shit, shit grows.
 - ⚡ Fun fact: Without ART the EARTH is just 'EH'
 
 <!---
